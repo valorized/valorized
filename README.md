@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @valorized
+- 👀 I’m interested in ... Coding!
+- 🌱 I’m currently learning python
+- 📫 How to reach me? Reach me on my gmail or discord! Gmail: (alex123reno@gmail.com) Discord: valorizedd
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I was 5'9 at 12
